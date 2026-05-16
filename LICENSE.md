@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with ultimate nft sniper bot | stop-loss + flip-strategies, the #1 nft sniper bot. Includes stop-loss and flip-strategies for a faster and more profitable
 
 
 
